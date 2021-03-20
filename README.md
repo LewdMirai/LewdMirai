@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @LewdMirai
+ Hi, I’m Mirai
